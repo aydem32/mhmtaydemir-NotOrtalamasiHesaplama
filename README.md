@@ -1,0 +1,1 @@
+# mhmtaydemir-NotOrtalamasiHesaplama
